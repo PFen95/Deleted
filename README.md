@@ -1,1 +1,0 @@
-# Simple-Beauty-Salon-Hair-Supply
